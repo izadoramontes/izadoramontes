@@ -8,4 +8,3 @@ Meu nome é Izadora Montes
 ### Você pode entrar em contato comigo 
 paludettomarcelo@gmail.com
 
-![descrição do GIF](link GIF do Tenor)
